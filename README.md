@@ -2,6 +2,8 @@ A plataforma 197Bet possui uma licença oficial emitida pela ilha de Curaçao. V
 
 O site também possui uma seção de perguntas frequentes (FAQ) onde você pode encontrar informações importantes sobre a plataforma e respostas para suas dúvidas.
 
+<img src="images/imgi_2_197bet-promocoes-1.png" alt="197Bet" width="1200">
+
 Bônus de boas-vindas da plataforma 197Bet de até 400 reais.
 A plataforma 197Bet também oferece uma ferramenta de busca de jogos simples e fácil de usar; basta digitar pelo menos duas letras na caixa de busca para obter sugestões de jogos.
 
